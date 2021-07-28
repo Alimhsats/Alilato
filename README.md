@@ -1,0 +1,2 @@
+# Alilato
+Alilato Arabic Font
